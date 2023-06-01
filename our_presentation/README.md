@@ -9,3 +9,4 @@ our video link :      https://youtu.be/lpHfo-lu0Ko
 
 
 
+our presentation : [trapezi_gia_4.pdf](https://github.com/KostisG/Digital-Storytelling-Group-Assignment/files/11629043/trapezi_gia_4.pdf)
