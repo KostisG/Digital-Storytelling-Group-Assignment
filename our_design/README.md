@@ -7,3 +7,4 @@
 
 our video link :      https://youtu.be/lpHfo-lu0Ko
 
+[ΨΗΦΙΑΚΕΣ-ΜΟΡΦΕΣ-ΑΦΗΓΗΣΗΣ_DREAMTEAM.pdf](https://github.com/KostisG/Digital-Storytelling-Group-Assignment/files/11628938/-.-._DREAMTEAM.pdf)
